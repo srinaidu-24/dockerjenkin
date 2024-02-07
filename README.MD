@@ -12,3 +12,7 @@ svvsdnm
 bdvbdhbcd]cs]
 bca sbc 
 csn an
+ng
+gnl
+wn
+w
